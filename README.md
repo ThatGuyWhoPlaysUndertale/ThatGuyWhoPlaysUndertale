@@ -1,0 +1,5 @@
+- Heyo, I’m ThatGuyWhoPlaysUndertale. I play undertale and terraria.
+- I’m interested in open source games/music. Speaking of that I do make music but not good at it lol. 
+- I’m wanna learn to code but its really complicated lmao 🥴
+- I dont do collabs lol
+- i spent 5 minutes thinking what to put here
